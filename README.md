@@ -1,2 +1,2 @@
-# ycJIyguMaHunyJI9ITopa
+# ycJIyguMa
 Услуги манипулятора Уфа
